@@ -1,0 +1,1 @@
+# beautystudio-privacy-policy
